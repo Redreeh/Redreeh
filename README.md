@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hi hii welcome
 
-<!--
-**Redreeh/Redreeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+﹒ **Dutch/English**
 
-Here are some ideas to get you started:
+﹒ **she/they**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+· · ─ · 🌹 · ─ · ·
+
+You can reach me on ﹕ [Discord](https://discordapp.com/users/873633332620046336)
+
+I'm a game dev student from the Netherlands .ᐟ
+
+I make my own game assets from time to time, which I occasionally share on my [Itch](https://redreeh.itch.io/) page ❣️ Feel free to check it out
